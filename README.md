@@ -1,1 +1,0 @@
-# kurage235.github.io
